@@ -1,0 +1,2 @@
+# lumiasoft
+bir marka doguyor
